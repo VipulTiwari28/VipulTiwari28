@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **tiwarivipul073@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Y_m2KcMPw966BCT_Skpky9XcLe-jaXun/view?usp=sharing](https://drive.google.com/file/d/1Y_m2KcMPw966BCT_Skpky9XcLe-jaXun/view?usp=sharing)
-
 - ⚡ Fun fact **Maybe good in coding**
 
 <h3 align="left">Connect with me:</h3>
